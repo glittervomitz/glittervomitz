@@ -1,5 +1,5 @@
 <div align="center">
-<img width="456" height="399" alt="Screenshot 2026-09-26 161932" src="https://github.com/user-attachments/assets/9796eb48-fc3f-4ec5-a5e9-f51e9fa4f526" />
+<img width="286" height="54" alt="Screenshot 2026-09-19 124406" src="https://github.com/user-attachments/assets/65f9abb5-dd38-4ad8-a2b7-24259e65d440" />
 
 i lob my friends ,, 
 
