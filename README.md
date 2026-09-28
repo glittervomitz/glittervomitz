@@ -1,7 +1,7 @@
 <div align="center">
 <img width="286" height="54" alt="Screenshot 2026-09-19 124406" src="https://github.com/user-attachments/assets/65f9abb5-dd38-4ad8-a2b7-24259e65d440" />
 
-i lob my friends ,, 
+i lov my friends 
 
 <img width="300" height="40" alt="0206-nyancat" src="https://github.com/user-attachments/assets/e9bf434d-c3b0-4f98-9efb-60a4fd7ed375" />
 <img width="300" height="40" alt="0196-browndog" src="https://github.com/user-attachments/assets/c3978375-25be-40d3-9a75-07d3496a48e4" />
