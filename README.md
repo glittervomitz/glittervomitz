@@ -14,6 +14,5 @@ i lov my friends
 
 im atheist yeehhawwh
 
-( ACCIDENTALLY TYPED ABLEIST INSTEAD OMG IM GONNA CRY )
 
 sensitive always iwcuf
