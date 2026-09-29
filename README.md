@@ -14,5 +14,6 @@ i lov my friends
 
 im atheist yeehhawwh
 
+https://swordpagee.straw.page
 
 sensitive always iwcuf
