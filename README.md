@@ -12,6 +12,7 @@ i lov my friends
 <img width="150" height="20" alt="0061-pinkcomputer" src="https://github.com/user-attachments/assets/91540328-3e48-469d-9ee9-e716a2e1c7ec" />
 <img width="150" height="20" alt="0275-stressed" src="https://github.com/user-attachments/assets/9ef24726-c280-413c-9d2f-ce20fd99075a" />
 
-im ableist yeehhawwh
+im atheist yeehhawwh
+( ACCIDENTALLY TYPED ABLEIST INSTEAD OMG IM GONNA CRY )
 
 sensitive always iwcuf
